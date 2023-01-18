@@ -1,0 +1,1 @@
+# Usecka_pomoci_DDA_Algoritmu
